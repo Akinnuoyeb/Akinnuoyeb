@@ -1,4 +1,4 @@
-- 👋 Hi, I'm Bankole Gabriel Akinnuoye
+- 👋 Hi, I'm Bankole Gabriel Akinnuoye, a security analysts, business and financial expert, forex and crypto investor/trader and a climate science enthusiast
 - 👀 I’m interested in Cybersecurity, Banking & Business Management, Blockchain & Cryptocurrency and Climate science
 - 🌱 I’m currently learning Cybersecurity and Business Development
 - 💞️ I’m looking to collaborate on Cybersecurity and Network/Systems protection, Business and Investment, Sports and Golfing 
